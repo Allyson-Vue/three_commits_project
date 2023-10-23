@@ -1,0 +1,1 @@
+I like hamsters! They're so cute and little!
